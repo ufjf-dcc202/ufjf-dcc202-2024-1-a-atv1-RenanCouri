@@ -1,3 +1,3 @@
 DCC202 2024-1
 
-Olá,meu nome é Renan Couri e minha matŕicula é 202365556c.
+Olá, meu nome é Renan Couri e minha matrícula é 202365556C.
